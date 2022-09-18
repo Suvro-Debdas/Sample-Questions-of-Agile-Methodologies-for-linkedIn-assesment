@@ -1,0 +1,1 @@
+# Sample-Questions-of-Agile-Methodologies-for-linkedIn-assesment
